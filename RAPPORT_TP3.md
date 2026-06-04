@@ -2,7 +2,7 @@
 
 ## Informations
 
-\- Nom : Adam K. ; Nayd S.  
+\- Nom : Adam K. ; Nayir S.  
 \- Date : 2026-06-04  
 \- Durée réelle : environ 5 heures.
 
